@@ -1,1 +1,1 @@
-# BBK
+# Git repository for BOKU Blaskapelle
