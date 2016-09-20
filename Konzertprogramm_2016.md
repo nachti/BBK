@@ -2,16 +2,26 @@
 
 **Celebration – Andraschek** 5:00
 
+[x] Noten
+
 **Mens Sana in corpore sano** 4:20  oder O Vitinho
+
+[ ] Noten
 
 Phantom of the opera – warren barker 11:40
 
 **Star Trek Voyager** (arr. Brunauer) – 2:30
 
+[ ] Noten (Stofferl?)
+
 **Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) ca. 10 min (Einmal von Markus Oberleitner gespielt, einmal von der BBK) [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
+
+[ ] Noten (Stofferl)
 
 **Tanz mit dem Teufel – Fritz Neuböck**  9:00
  [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
+
+[ ] Noten (werden angeschafft)
 
 Rock medley – mit Jazz-Solo Beitrag ?
 
@@ -21,6 +31,9 @@ Rock medley – mit Jazz-Solo Beitrag ?
   - Rosanna
   - Gloria
 - **Phil collins in concert** 4:40 (schwer aber spielbar)
+
+[ ] Noten
+
 - Joe Cocker Medley
 - Toto in concert
 
@@ -34,6 +47,8 @@ Wir Musikanten
 
 Eine coole Polka, Ouverture und Marsch (z.B. National Emblem)
 **Von Freund zu Freund** 4:00
+
+[ ] Noten
 
 Filmmusik: Gladiator, Jurassic Park
 
