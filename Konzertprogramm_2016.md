@@ -8,7 +8,7 @@ Phantom of the opera – warren barker 11:40
 
 **Star Trek Voyager** (arr. Brunauer) – 2:30
 
-**Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) 2 x 4:30 ?? [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
+**Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) ca. 10 min (Einmal von Markus Oberleitner gespielt, einmal von der BBK) [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
 
 **Tanz mit dem Teufel – Fritz Neuböck**  9:00
  [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
@@ -20,7 +20,7 @@ Rock medley – mit Jazz-Solo Beitrag ?
   - Go West
   - Rosanna
   - Gloria
-- Phil collins in concert 4:40 (schwer aber spielbar)
+- **Phil collins in concert** 4:40 (schwer aber spielbar)
 - Joe Cocker Medley
 - Toto in concert
 
@@ -39,3 +39,4 @@ Filmmusik: Gladiator, Jurassic Park
 
 Ev. noch ein Zugabe-Marsch
 
+**Gesamtdauer der derzeit ausgewählten Stücke: 40 min**
