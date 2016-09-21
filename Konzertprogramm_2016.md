@@ -6,22 +6,22 @@
 
 **Mens Sana in corpore sano** 4:20  oder O Vitinho
 
-- [ ] Noten
+- [ ] Noten (--> hat da Klingler Andi bei der Musikkapelle daheim)
 
 Phantom of the opera – warren barker 11:40
 
 **Star Trek Voyager** (arr. Brunauer) – 2:30
 
-- [ ] Noten (Stofferl?)
+- [x] Noten (Stofferl)
 
 **Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) ca. 10 min (Einmal von Markus Oberleitner gespielt, einmal von der BBK) [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
 
-- [ ] Noten (Stofferl)
+- [x] Noten (Stofferl)
 
 **Tanz mit dem Teufel – Fritz Neuböck**  9:00
  [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
 
-- [ ] Noten (werden angeschafft)
+- [x] Noten (werden angeschafft von Petja)
 
 Rock medley – mit Jazz-Solo Beitrag ?
 
@@ -32,7 +32,7 @@ Rock medley – mit Jazz-Solo Beitrag ?
   - Gloria
 - **Phil collins in concert** 4:40 (schwer aber spielbar)
 
-- [ ] Noten
+- [ ] Noten (Musikkapelle von Iris)
 
 - Joe Cocker Medley
 - Toto in concert
