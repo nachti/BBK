@@ -48,10 +48,13 @@ Wir Musikanten
 Eine coole Polka, Ouverture und Marsch (z.B. National Emblem)
 **Von Freund zu Freund** 4:00
 
-- [ ] Noten
+- [x] Noten (sind laut Petja/Stef bei der BBK für die ganze Besetzung vorhanden)
 
 Filmmusik: Gladiator, Jurassic Park
 
 Ev. noch ein Zugabe-Marsch
 
-**Gesamtdauer der derzeit ausgewählten Stücke: 40 min**
+**2 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 10 min)**
+
+
+**Gesamtdauer der derzeit ausgewählten Stücke: 50 min**
