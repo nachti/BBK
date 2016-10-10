@@ -54,7 +54,7 @@ Filmmusik: Gladiator, Jurassic Park
 
 Ev. noch ein Zugabe-Marsch
 
-**2 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 10 min)**
+**3-4 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 15 min)**
 
 
-**Gesamtdauer der derzeit ausgewählten Stücke: 50 min**
+**Gesamtdauer der derzeit ausgewählten Stücke: 54 min**
