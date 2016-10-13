@@ -1,27 +1,48 @@
 # Konzertprogramm 2016
 
+**Mens Sana in corpore sano** 4:20
+
+- [x] Noten (--> hat da Klingler Andi bei der Musikkapelle daheim)
+
 **Celebration – Andraschek** 5:00
 
 - [x] Noten vorhanden
-
-**Mens Sana in corpore sano** 4:20  oder O Vitinho
-
-- [ ] Noten (--> hat da Klingler Andi bei der Musikkapelle daheim)
-
-Phantom of the opera – warren barker 11:40
-
-**Star Trek Voyager** (arr. Brunauer) – 2:30
-
-- [x] Noten (Stofferl)
-
-**Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) ca. 10 min (Einmal von Markus Oberleitner gespielt, einmal von der BBK) [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
-
-- [x] Noten (Stofferl)
 
 **Tanz mit dem Teufel – Fritz Neuböck**  9:00
  [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
 
 - [x] Noten (werden angeschafft von Petja)
+
+
+**Marsch Feichte Wiesn** – Markus Oberleitner (arr. Brunauer) ca. 10 min (Einmal von Markus Oberleitner gespielt, einmal von der BBK) [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
+
+- [x] Noten (Stofferl)
+
+
+
+** PAUSE **
+
+**3-4 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 15 min)**
+
+**Star Trek Voyager** (arr. Brunauer) – 2:30
+
+- [x] Noten (Stofferl)
+
+**Phil collins in concert** 4:40 (schwer aber spielbar)
+
+- [x] Noten (Musikkapelle von Iris)
+
+
+**Von Freund zu Freund** 4:00
+
+- [x] Noten
+
+
+
+
+**Gesamtdauer der derzeit ausgewählten Stücke: 54 min**
+
+
 
 Rock medley – mit Jazz-Solo Beitrag ?
 
@@ -30,9 +51,7 @@ Rock medley – mit Jazz-Solo Beitrag ?
   - Go West
   - Rosanna
   - Gloria
-- **Phil collins in concert** 4:40 (schwer aber spielbar)
 
-- [ ] Noten (Musikkapelle von Iris)
 
 - Joe Cocker Medley
 - Toto in concert
@@ -46,15 +65,12 @@ oder
 Wir Musikanten
 
 Eine coole Polka, Ouverture und Marsch (z.B. National Emblem)
-**Von Freund zu Freund** 4:00
 
-- [x] Noten (sind laut Petja/Stef bei der BBK für die ganze Besetzung vorhanden)
 
 Filmmusik: Gladiator, Jurassic Park
 
 Ev. noch ein Zugabe-Marsch
 
-**3-4 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 15 min)**
+Phantom of the opera – warren barker 11:40
 
-
-**Gesamtdauer der derzeit ausgewählten Stücke: 54 min**
+O Vitinho
