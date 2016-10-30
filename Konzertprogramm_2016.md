@@ -1,17 +1,19 @@
 # Konzertprogramm 2016
 
+1. **Celebration – Andraschek** 5:00
+    - [x] Noten vorhanden
+
 1. **Mens Sana in corpore sano** 4:20
     - [x] Noten (--> hat da Klingler Andi bei der Musikkapelle daheim)
 
-1. **Celebration – Andraschek** 5:00
-    - [x] Noten vorhanden
+1. **Von Freund zu Freund** 4:00
+    - [x] Noten
 
 1. **Marsch Feichte Wiesn** – Markus Oberleitner (arr.     Brunauer) ca. 10 min (Einmal von Markus Oberleitner     gespielt, einmal von der BBK)                       [https://www.youtube.com/watch?v=VHP3-LqSiI0](https://www.youtube.com/watch?v=VHP3-LqSiI0)
     - [x] Noten (Stofferl)
 
-1. **Tanz mit dem Teufel – Fritz Neuböck**  9:00
- [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
-    - [x] Noten (werden angeschafft von Petja)
+1. **Phil collins in concert** 4:40 (schwer aber spielbar)
+    - [x] Noten (Musikkapelle von Iris)
 
 -----
 
@@ -19,16 +21,17 @@
 
 -----
 
-1. **3-4 Ensemble Stücke - 1xHolzensemble, 1xBlechensemble (insg. ca 15 min)**
+
+6. Klassik Ensemble: Auszüge aus Beethoven op. 71
+
+1. Blechensemble: Kraken, Mr. Jums - Chris Hazell
 
 1. **Star Trek Voyager** (arr. Brunauer) – 2:30
     - [x] Noten (Stofferl)
 
-1. **Von Freund zu Freund** 4:00
-    - [x] Noten
-
-1. **Phil collins in concert** 4:40 (schwer aber spielbar)
-    - [x] Noten (Musikkapelle von Iris)
+1. **Tanz mit dem Teufel – Fritz Neuböck**  9:00
+ [https://www.youtube.com/watch?v=S133haEe4bk](https://www.youtube.com/watch?v=S133haEe4bk)
+    - [x] Noten (werden angeschafft von Petja)
 
 
 **Gesamtdauer der derzeit ausgewählten Stücke: 54 min**
